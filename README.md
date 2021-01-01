@@ -1,1 +1,0 @@
-# manellegrace-delacruz.github.io
